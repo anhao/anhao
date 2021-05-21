@@ -4,6 +4,6 @@
 
 > Keep calm and coding.
 
-🇨🇳 China Shenzhen・🕹Web developer
+🇨🇳 China JiangXi・🕹Web developer
 
 https://alone88.cn
